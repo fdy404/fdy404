@@ -2,5 +2,5 @@
 
 <p align="center">
   
-> “Allah Does Not Change a Person's State Until They Change Themselves. So Just Be The Guy Who Changes It - God Bless”
+> “Allah Does Not Change What Is In a Nation Unless They Change What Is In Themselves - This Is a Cosmic Human Law”
 </p>
