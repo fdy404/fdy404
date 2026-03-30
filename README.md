@@ -1,3 +1,3 @@
-<h1 align="center">𝟒𝟎𝟒</h1>
-
-> “d8b0d98820d8a7d984d8b9d982d98420d98ad8b4d982d98920d981d98a20d986d8b9d98ad98520d8a8d8b9d982d984d98720d98820d8a7d8aed98820d8acd987d8a7d984d8a920d981d98a20d8b4d982d8a7d988d8a920d98ad986d8b9d985"
+<p align="center">
+  <img src="https://s8.ezgif.com/tmp/ezgif-8deb6687a0fb00e2.gif" alt="Animated Dino">
+</p>
